@@ -19,4 +19,4 @@
 - Now add the salt, cinnamon, ginger and nutmeg. Stir into the onions and garlic.
 - Pour in the pumpkin puree and broth. Stir everything together well. Bring the soup to a boil, then lower the heat and simmer for 15 minutes.
 - Use an immersion blender to blend the soup in the pot. Or transfer to a regular blender in batches, then return to the pot.
-- Stir in the maple syrup and coconut milk. Serve with fresh bread if desired and enjoy.
+- Stir in the maple syrup and coconut milk. Serve with fresh bread if desired and enjoy!
